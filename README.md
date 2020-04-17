@@ -2,7 +2,7 @@
 Read the Word,Read the World.
 不定期通过邮件列表分享包括但不限于读书、深度阅读、新闻评论、科技以及其它美好的事物。
 
-**Λ-Reading：**https://rizime.substack.com/
+Λ-Reading：https://rizime.substack.com/
 
 ### 往期回顾：
 - [Λ-Reading：后疫情时代的常态](https://rizime.substack.com/p/-reading-ce5)
