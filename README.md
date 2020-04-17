@@ -1,6 +1,7 @@
 **Λ-Reading** 是一个 Newsletter！
 Read the Word,Read the World.
 不定期通过邮件列表分享包括但不限于读书、深度阅读、新闻评论、科技以及其它美好的事物。
+
 **Λ-Reading：**https://rizime.substack.com/
 
 ### 往期回顾：
