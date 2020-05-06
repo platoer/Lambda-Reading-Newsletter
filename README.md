@@ -12,7 +12,7 @@
 - [Λ-Reading：3本书和1 首冥想曲](https://rizime.substack.com/p/-reading31-)
 - [Λ-Reading：为什么大多数独裁者最后都自我毁灭](https://rizime.substack.com/p/-reading-581)
 - [Λ-Reading：一本正经的胡说八道](https://rizime.substack.com/p/-reading-8df)
-- [Λ-Reading：杀死我们的将是饥饿，而不是新冠病毒|https://rizime.substack.com/p/-reading-d5f)
+- [Λ-Reading：杀死我们的将是饥饿，而不是新冠病毒](https://rizime.substack.com/p/-reading-d5f)
 - [Λ-Reading：大者愈大！](https://rizime.substack.com/p/-reading-ad8)
 - [Λ-Reading：微信图片过滤审查功能的分析](https://rizime.substack.com/p/-reading-132)
 - [Λ-Reading：后疫情时代的常态](https://rizime.substack.com/p/-reading-ce5)
