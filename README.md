@@ -1,14 +1,23 @@
 **Λ-Reading** 是一个 Newsletter！Read the Word,Read the World.
 
 
-不定期通过邮件列表分享包括但不限于读书、深度阅读、新闻评论、科技以及其它美好的事物。
+“Λ-Reading ”一份阅读通讯，包含但不限于阅读、时事评论、科技观察和新科技等内容。
 
 Λ-Reading：https://rizime.substack.com/
 
+如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
+
 ### 往期回顾：
+- [Λ-Reading：2 部电影和 1 本书](https://rizime.substack.com/p/-reading2-1-)
+- [Λ-Reading：3本书和1 首冥想曲](https://rizime.substack.com/p/-reading31-)
+- [Λ-Reading：为什么大多数独裁者最后都自我毁灭](https://rizime.substack.com/p/-reading-581)
+- [Λ-Reading：一本正经的胡说八道](https://rizime.substack.com/p/-reading-8df]]
+- [Λ-Reading：杀死我们的将是饥饿，而不是新冠病毒|https://rizime.substack.com/p/-reading-d5f)
+- [Λ-Reading：大者愈大！](https://rizime.substack.com/p/-reading-ad8)
+- [Λ-Reading：微信图片过滤审查功能的分析](https://rizime.substack.com/p/-reading-132)
 - [Λ-Reading：后疫情时代的常态](https://rizime.substack.com/p/-reading-ce5)
 - [Λ-Reading：没有谁是一座孤岛](https://rizime.substack.com/p/-reading-8be)
-- [Λ-Reading：中国今年的经济增长率预计仅为2%](https://rizime.substack.com/p/-reading2)
+- [Λ-Reading：中国今年的经济增长率预计仅为2%](https://rizime.substack.com/p/-reading2](
 - [Λ-Reading：世界变化的趋同性](https://rizime.substack.com/p/-reading-745)
 - [Λ-Reading：谁来支撑中国经济](https://rizime.substack.com/p/-reading-567)
 - [Λ-Reading：活着这一长期的习惯使我们不愿死亡](https://rizime.substack.com/p/-reading-736)
