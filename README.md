@@ -1,7 +1,7 @@
-**Λ-Reading** 是一个 Newsletter！Read the Word,Read the World.
+**Λ-Reading** Read the Word,Read the World.
 
 
-“Λ-Reading ”一份阅读通讯，包含但不限于阅读、时事评论、科技观察和新科技等内容。
+“Λ-Reading ”一份Newsletter阅读通讯，包含但不限于阅读、时事评论、科技观察和新科技等内容。
 
 Λ-Reading：https://rizime.substack.com/
 
