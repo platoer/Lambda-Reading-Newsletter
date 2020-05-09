@@ -9,6 +9,7 @@ Read the Word,Read the World.
 如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
 
 ### 往期回顾：
+- [路径依赖和困扰计算机的简单问题](https://rizime.substack.com/p/f08)
 - [Λ-Reading：从巴菲特讲话中你应该知道的](https://rizime.substack.com/p/-reading-265)
 - [Λ-Reading：2 部电影和 1 本书](https://rizime.substack.com/p/-reading2-1-)
 - [Λ-Reading：3本书和1 首冥想曲](https://rizime.substack.com/p/-reading31-)
