@@ -9,6 +9,8 @@ Read the Word,Read the World.
 如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
 
 ### 往期回顾：
+- [逮捕率上升130%和未知的焦虑](https://rizime.substack.com/p/130)
+- [人脑思维缓冲区溢出攻击](https://rizime.substack.com/p/700)
 - [一勺钻石和苍蝇王](https://rizime.substack.com/p/12a)
 - [路径依赖和困扰计算机的简单问题](https://rizime.substack.com/p/f08)
 - [Λ-Reading：从巴菲特讲话中你应该知道的](https://rizime.substack.com/p/-reading-265)
