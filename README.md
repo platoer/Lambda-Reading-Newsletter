@@ -9,6 +9,7 @@ Read the Word,Read the World.
 如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
 
 ### 往期回顾：
+- [离婚率和指涉性悖论](https://rizime.substack.com/p/6e3)
 - [一场思维实验](https://rizime.substack.com/p/ef7)
 - [逮捕率上升130%和未知的焦虑](https://rizime.substack.com/p/130)
 - [人脑思维缓冲区溢出攻击](https://rizime.substack.com/p/700)
