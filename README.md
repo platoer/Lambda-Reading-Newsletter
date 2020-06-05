@@ -9,6 +9,7 @@ Read the Word,Read the World.
 如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
 
 ### 往期回顾：
+— [世界运行的超然力量和荒谬权利](https://rizime.substack.com/p/5fe)
 - [路径依赖、信息过载和信息茧房](https://rizime.substack.com/p/140)
 - [号外：知识管理工具-Tiddlywiki](https://rizime.substack.com/p/d28)
 - [这里蕴涵着世界和灵魂的救赎](https://rizime.substack.com/p/beb)
