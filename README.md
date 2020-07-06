@@ -10,12 +10,13 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+
 - [读书笔记和两个著名实验](https://rizime.substack.com/p/897)
 - [魔幻现实和再谈随机性](https://rizime.substack.com/p/f8e)
-— [科技道德、权利以及即随机性三法则](https://rizime.substack.com/p/42e)
-— [世界运行的超然力量和荒谬权利](https://rizime.substack.com/p/5fe)
+- [科技道德、权利以及即随机性三法则](https://rizime.substack.com/p/42e)
+- [世界运行的超然力量和荒谬权利](https://rizime.substack.com/p/5fe)
 - [路径依赖、信息过载和信息茧房](https://rizime.substack.com/p/140)
-- [号外：知识管理工具-Tiddlywiki](https://rizime.substack.com/p/d28)
+- [号外：知识管理工具](https://rizime.substack.com/p/d28)
 - [这里蕴涵着世界和灵魂的救赎](https://rizime.substack.com/p/beb)
 - [离婚率和指涉性悖论](https://rizime.substack.com/p/6e3)
 - [一场思维实验](https://rizime.substack.com/p/ef7)
@@ -40,3 +41,4 @@ Read the Word,Read the World.
 - [Λ-Reading：六大科技定律](https://rizime.substack.com/p/-reading-cfb)
 - [Λ-Reading：中国对刺激经济复苏计划犹豫不决](https://rizime.substack.com/p/-reading-8be)
 - [Λ-Reading：从民族主义到个体信息论](https://rizime.substack.com/p/-reading-9e6)
+
