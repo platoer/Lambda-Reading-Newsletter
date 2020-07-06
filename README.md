@@ -10,6 +10,8 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [读书笔记和两个著名实验](https://rizime.substack.com/p/897)
+- [魔幻现实和再谈随机性](https://rizime.substack.com/p/f8e)
 — [科技道德、权利以及即随机性三法则](https://rizime.substack.com/p/42e)
 — [世界运行的超然力量和荒谬权利](https://rizime.substack.com/p/5fe)
 - [路径依赖、信息过载和信息茧房](https://rizime.substack.com/p/140)
