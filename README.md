@@ -10,7 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
-
+- [知识付费和哪些科学观点必须去死](https://rizime.substack.com/p/14d)
 - [读书笔记和两个著名实验](https://rizime.substack.com/p/897)
 - [魔幻现实和再谈随机性](https://rizime.substack.com/p/f8e)
 - [科技道德、权利以及即随机性三法则](https://rizime.substack.com/p/42e)
