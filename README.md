@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [洪灾和打破大数据的魔法](https://rizime.substack.com/p/ba4)
 - [“315”和应对信息过载的办法](https://rizime.substack.com/p/315)
 - - [哪些科学观点必须去死-二](https://rizime.substack.com/p/-)
 - [知识付费和哪些科学观点必须去死](https://rizime.substack.com/p/14d)
