@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [什么书是你自愧还没读过的？](https://rizime.substack.com/p/--a85)
 - [内循环和您会给国家领导人推荐什么书？](https://rizime.substack.com/p/2fe)
 - [洪灾和打破大数据的魔法](https://rizime.substack.com/p/ba4)
 - [“315”和应对信息过载的办法](https://rizime.substack.com/p/315)
