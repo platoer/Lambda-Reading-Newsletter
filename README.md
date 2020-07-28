@@ -10,12 +10,13 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
-- [什么书是你自愧还没读过的？](https://rizime.substack.com/p/--a85)
+
 - [内循环和您会给国家领导人推荐什么书？](https://rizime.substack.com/p/2fe)
+- - [什么书是你自愧还没读过的？](https://rizime.substack.com/p/--a85)
 - [洪灾和打破大数据的魔法](https://rizime.substack.com/p/ba4)
 - [“315”和应对信息过载的办法](https://rizime.substack.com/p/315)
-- - [哪些科学观点必须去死-二](https://rizime.substack.com/p/-)
 - [知识付费和哪些科学观点必须去死](https://rizime.substack.com/p/14d)
+- - [哪些科学观点必须去死-二](https://rizime.substack.com/p/-)
 - [读书笔记和两个著名实验](https://rizime.substack.com/p/897)
 - [魔幻现实和再谈随机性](https://rizime.substack.com/p/f8e)
 - [科技道德、权利以及即随机性三法则](https://rizime.substack.com/p/42e)
