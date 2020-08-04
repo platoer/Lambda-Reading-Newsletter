@@ -11,6 +11,7 @@ Read the Word,Read the World.
 ### 往期回顾：
 
 - [“神书”和让我们用墒来解释一下世界](https://rizime.substack.com/p/95a)
+- - [墒理论与应用](https://rizime.substack.com/p/86e)
 - [内循环和您会给国家领导人推荐什么书？](https://rizime.substack.com/p/2fe)
 - - [什么书是你自愧还没读过的？](https://rizime.substack.com/p/--a85)
 - [洪灾和打破大数据的魔法](https://rizime.substack.com/p/ba4)
