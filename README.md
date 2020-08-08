@@ -2,11 +2,11 @@
 Read the Word,Read the World.
 
 
-“Λ-Reading ”一份Newsletter阅读通讯，包含但不限于阅读、时事评论、科技观察和新科技等内容。
+“Λ-Reading ” 是一份Newsletter，阅读通讯，内容包含但不限于阅读、时事评论、科技观察和新科技等内容。
 
 Λ-Reading：https://rizime.substack.com/
 
-如果上面打不开，到此[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
+如果上面打不开，到此免翻墙[订阅](https://forms.office.com/Pages/ResponsePage.aspx?id=VIwy2_GOiEa-VdcIU10AJ_jKLTF5MW1JmqVdTmBOHW1UMkQwMThXODlHSkhBN1pKN0w2UjlLVlUySy4u)。
 
 ### 往期回顾：
 
