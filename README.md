@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [#39 人类思维中最致命的错误](https://rizime.substack.com/p/e7b)
 - [横跨数百万年惊天动地的力量](https://rizime.substack.com/p/4a1)
 - [“新鸦片战争”和为什么人类喜欢对称？](https://rizime.substack.com/p/1b8)
 - [“神书”和让我们用墒来解释一下世界](https://rizime.substack.com/p/95a)
