@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [#44 要想提高你的开放性，请尝试花时间凝视星空吧！](https://rizime.substack.com/p/5bf)
 - [#42 怎么阅读更多的书？](https://rizime.substack.com/p/--c41)
 - [#41 怎么一目十行读书](https://rizime.substack.com/p/--5d7)
 - [#40 如何怼杠精和键盘侠？](https://rizime.substack.com/p/cb9)
