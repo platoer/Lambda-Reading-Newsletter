@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [#45 延续百年的智识方案已经全部玩完了](https://rizime.substack.com/p/c52)
 - [#44 要想提高你的开放性，请尝试花时间凝视星空吧！](https://rizime.substack.com/p/5bf)
 - [#43 开门，放世界进来](https://rizime.substack.com/p/--0d8)
 - [#42 怎么阅读更多的书？](https://rizime.substack.com/p/--c41)
