@@ -10,6 +10,8 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+
+- [47# 未来我们都会生活在系统中，受其驱使、控制和奴役](https://rizime.substack.com/p/--3eb)
 - [46# 我因为长得不漂亮所以结不了婚](https://rizime.substack.com/p/8ca)
 - [#45 延续百年的智识方案已经全部玩完了](https://rizime.substack.com/p/c52)
 - [#44 要想提高你的开放性，请尝试花时间凝视星空吧！](https://rizime.substack.com/p/5bf)
