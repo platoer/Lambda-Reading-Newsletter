@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [#51 一本好书](https://rizime.substack.com/p/--3aa) 
 - [#50 毒物兴奋效应和密码破解](https://rizime.substack.com/p/--dc4) 
 - [#49 大漠悲歌 艽野尘梦](https://rizime.substack.com/p/--bae) 
 - [#48 Λ-Reading 前50期内容分类目录](https://rizime.substack.com/p/-reading-50)
