@@ -10,6 +10,7 @@ Read the Word,Read the World.
 
 ### 往期回顾：
 
+- [#52 为什么感觉时间会过的快?](https://rizime.substack.com/p/--7ed)
 - [#51 一本好书](https://rizime.substack.com/p/--3aa) 
 - [#50 毒物兴奋效应和密码破解](https://rizime.substack.com/p/--dc4) 
 - [#49 大漠悲歌 艽野尘梦](https://rizime.substack.com/p/--bae) 
