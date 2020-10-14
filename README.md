@@ -1,3 +1,5 @@
+![Λ-Reading](https://rizibox.herokuapp.com/TEMP/Λ-Reading.png)
+
 ### **Λ-Reading** 
 Read the Word,Read the World.
 
