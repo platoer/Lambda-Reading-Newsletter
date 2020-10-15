@@ -3,8 +3,7 @@
 ### **Λ-Reading** 
 Read the Word,Read the World.
 
-
-“Λ-Reading ” 是一份Newsletter，阅读通讯，内容包含但不限于阅读、时事评论、科技观察和新科技等内容。
+“**Λ-Reading** ”是一个免费的Newsletter阅读通讯，包含但不限于认知科学、书籍推荐、科技观察和新科技等内容，每周1~2期。
 
 Λ-Reading：https://rizime.substack.com/
 
