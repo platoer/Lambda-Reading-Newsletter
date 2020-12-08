@@ -30,3 +30,7 @@ Read the Word,Read the World.
 ## 往期目录：
 
 [Λ-Reading目录](https://www.notion.so/rizi/Reading-d77be691eb244db0b8add646b6ef7f3b)
+
+## Telegram 频道：
+
+https://t.me/GoReading
